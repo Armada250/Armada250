@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Armada250
 - 👀 I’m interested in Geosciencies, cyclism and calisthenics
-- 🌱 I’m currently doing master degree in environmmental sciences at Unil
+- 🌱 I’m currently doing a master degree in environmmental sciences at Unil
 - 📫 How to reach me : Mail = Alexandre.armadaaladid@unil.ch,Phone = 0766931970
